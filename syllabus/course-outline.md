@@ -3,8 +3,8 @@
 ### 🗓 Duration:
 
 * **4 Weeks**
-* **3 or 6 sessions per week** (Total: 12 sessions)
-* **Each session:** 1.5 hours / 45 mins
+* **3 or 6 sessions per week** (Total: 12 or 24 sessions)
+* **Each session:** 1.5 hours (fast track) / 45 mins (normal track)
 
 ---
 
